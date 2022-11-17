@@ -1,8 +1,17 @@
+# Cross-Chain Bridges as the value of the Blockchain becomes attractive for various attacks
 
+
+---
+---
 
 
 
 <figure class="wp-block-image"><img decoding="async" src="./Cross-Chain Bridges as the value of the Blockchain becomes attractive for various attacks CRYPTO DEEP TECH_files/025-1-1024x576.png" alt="Cross-chain bridges as the value of the blockchain becomes attractive for various attacks" class="wp-image-1745"></figure>
+
+
+
+---
+---
 
 
 
